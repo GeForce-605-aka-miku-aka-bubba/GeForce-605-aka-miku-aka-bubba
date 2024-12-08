@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GeForce-605-aka-miku-aka-bubba
+- 👀 I’m interested in Miku
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me Discord: the_one_guy_that_loves_femboys gmail: batbilegbuynbadrah@gmail.com
+- 😄 Pronouns: he/him
